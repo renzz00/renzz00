@@ -9,4 +9,4 @@
 ### Twitter: @1renzz1
 
 # CURRENT ACTIVITY
-### Working on BONELAB Starter Pack (currently private)
+### Working on Pixel Art Repo (public, go watch me make art at my twitch "blvse1"!)
