@@ -9,4 +9,4 @@
 ### Twitter: @1renzz1
 
 # CURRENT ACTIVITY
-### Working on Ultimate Hack Bookmarklet (Private)
+### Working on Ultimate Hack Bookmarklet (Public)
