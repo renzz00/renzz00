@@ -5,7 +5,7 @@
 - Open for commisions on Roblox Studio (aslong as they are not too complicated)
 
 # SOCIALS
-### Discord: renzz.dev
+### Discord: renzz.dev (rxve.00 now because of discord stuff :/)
 ### Twitter: @1renzz1
 
 # CURRENT ACTIVITY
