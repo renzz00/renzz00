@@ -1,11 +1,11 @@
-# RENZZ
+# _six
 - aspiring DevOps engineer (ty MattKC)
 - want to learn HTML and C++
 - open for website building
 
-# SOCIALS
+# _socials
 ### discord: .sid6
 the rest are on my [main page]
 
-# CURRENT ACTIVITY
+# _current_activity
 making guns.lol replacement for myself
